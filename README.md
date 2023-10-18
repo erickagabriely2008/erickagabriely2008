@@ -1,3 +1,3 @@
    # Ericka 🇧🇷                                                               
 
-# data de nacimento: 10/11/2008 🍰 
+# data de nacimento: 10/11/2008 🥇
